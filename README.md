@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rajathbhargav
 - 👀 I’m interested in Physics, Electronics, Astronomy and Music theory
-- 🌱 I’m currently learning astrophotography and music theory
+- 🌱 I’m currently learning astrophotography
 - 📫 Reach out to me at kaalayaatrin@gmail.com
 
 <!---
