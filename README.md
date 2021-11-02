@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rajathbhargav
 - I am an electronics engineer
-- 👀 I’m interested in Physics, Electronics, Astronomy and Music
+- 👀 I’m interested in Physics, Electronics, Astronomy, Formula 1 and Music
 - 🌱 My astrophotography blog - https://sites.google.com/view/kaalayaatrin and instagram - @ kaala_yaatrin
 - YouTube: HalfMVsquared (https://www.youtube.com/channel/UCH6zzZdQqopXdNWuWW06-Ow)
 - 📫 Reach out to me at kaalayaatrin@gmail.com
