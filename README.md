@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Bhargav, a space systems grad.
 - 👀 I’m interested in Physics, Electronics, Astronomy, Formula 1 and Music
 - 🌱 My astrophotography blog - https://sites.google.com/view/kaalayaatrin and instagram - @kaala_yaatrin
-- 📫 Reach out to me at kaalayaatrin@gmail.com
+- 📫 Reach out to me at bhargav.nrb@gmail.com
